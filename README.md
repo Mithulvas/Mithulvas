@@ -13,6 +13,6 @@
 	•	Minimalist Branding → View Here
 
 📢 Let’s Connect!
-	•	✉ Email: your.email@example.com
-	•	🔗 Instagram: @yourusername
-	•	🔗 Behance: @yourbehance
+	•	✉ Email: mithulgfx@gmail.com
+	•	🔗 Instagram: mithuldesigns
+	•	🔗 Behance: mithulvas
