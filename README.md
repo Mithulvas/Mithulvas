@@ -1,16 +1,18 @@
-## Hi there 👋
+👋 Hey, I’m Mithul!
 
-<!--
-**Mithulvas/Mithulvas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🎨 Graphic Designer | 🏆 Logo & Brand Identity Specialist | ✨ Aesthetic Photo Manipulation
 
-Here are some ideas to get you started:
+🚀 About Me:
+	•	Passionate about creating minimalistic and aesthetic designs.
+	•	Specializing in brand identity, social media designs, and sports posters.
+	•	I post my work on Instagram and Behance.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📌 Portfolio & Projects:
+	•	Logo Redesigns → View Here
+	•	Sports Posters → View Here
+	•	Minimalist Branding → View Here
+
+📢 Let’s Connect!
+	•	✉ Email: your.email@example.com
+	•	🔗 Instagram: @yourusername
+	•	🔗 Behance: @yourbehance
